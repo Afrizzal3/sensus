@@ -1,2 +1,0 @@
-# sensus
-tugas
